@@ -1,0 +1,2 @@
+# TheGreatPapyrusuUltimateTrap-
+TheGreatPapyrusUltimateToBeatSevenHumansToGoToTheRoyalGard
